@@ -14,7 +14,9 @@
 
 📚 When I'm not coding, you can find me immersed in books, exploring nature, or engaging in meaningful discussions about the intersection of technology and society.
 
-🤝 Open to connecting with like-minded individuals, mentors, and potential collaborators. Let's connect and make a positive impact together! 😄 📫 Let's connect on Linkedin 
+🤝 Open to connecting with like-minded individuals to make a positive impact together! 😄 
+
+📫 Let's connect on Linkedin 
 
 
 
