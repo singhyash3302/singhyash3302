@@ -1,5 +1,5 @@
 
-# Hello there👋, I'm Yash Singh!
+# Hey there👋, I'm Yash Singh!
 
 
 🎓 Currently pursuing my Bachelor's degree in Computer Science Engineering at Instiute of Engineering and Technology, also the IITM BS online degree in Data Science. Constantly learning and expanding my knowledge in areas such as algorithms, data structures, web development, and artificial intelligence.🚀
