@@ -12,7 +12,7 @@
 
 👯‍♀️ I'm looking to collaborate on on exciting projects, solve real-world problems, and gain hands-on experience in software development.
 
-📚 When I'm not coding, you can find me immersed in books, exploring nature, or engaging in meaningful discussions about the intersection of technology and society.
+📚 When I'm not coding, you can find me immersed in nature playing with my pet 🐶
 
 🤝 Open to connecting with like-minded individuals to make a positive impact together! 😄 
 
